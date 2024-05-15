@@ -1,16 +1,13 @@
-### Hi there 👋
+### 𐌁ዐ𐌀ነ ህ𐌉ክ𐌃ል𐌔 𐌀ዐ ጮ𐌄፱ የ𐌄ዪ𐌅ጎ𐌋 💙💙
 
-<!--
-**77wilson777/77wilson777** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ ጮ𐌄፱ ክꝊጮ𐌄 𐌄 ሠጎረነዐክ ቻዪልክርጎነርዐ 
 
-Here are some ideas to get you started:
+- 𐌄ነ𐌕ዐ𐌵 𐌄ነ𐌕፱𐌃ል𐌍ጋꝊ 𐌍ል ል𐌋፱𐌐ል
+- ቹ𐌔ፕꝊ፱ ጮ𐌄 𐌃ቹ𐌔ቹ𐌍ህꝊረᕓቹ𐌍ጋꝊ 𐌍ል ረ𐌉ክᏵ፱𐌀ፏ𐌄ጮ ፓ𐌀ህ𐌀ነ𐌂ዪ𐌉የ𐌕
+- 𐌵ፕ𐌉ረ𐌉ጊꝊ 𐌄ነ𐌔ቹ ቹ𐌔የ𐌀ርꝊ 𐌓ል𐌐ል ጮ𐌉ክ𐋅ል ዐ𐌐ፏ𐌀ክ𐌉ጊ𐌀ር𐌀ዐ ቹ ርꝊጮ𐌓ል𐌐ፕ𐌉ረ𐋅ል𐌌ቹ𐌍ፕꝊ 𐌃ዐ𐌔 𐌌ቹ𐌵 𐌓ዪꝊፓ𐌄ፕꝊነ ጋ𐌄ነ𐌄ክᕓዐ𐌋ህ𐌉ጋꝊነ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### ᕓꝊ𐌂𐌄 𐌓Ꝋ𐌃𐌄 𐌄𐌍𐌕𐌐𐌀𐌐 𐌄𐌌 𐌂Ꝋ𐌍𐌕𐌀𐌕Ꝋ 𐌂Ꝋ𐌌𐌉ᏵꝊ 📫 
+
+ꝋꝋꝋꝋᛑᛑᘖᔦᔦᔕᘖꝋᒣᘖ𐌔𐌓@𐌀𐌋.𐌄𐌃𐌵𐌂𐌀𐌂𐌀Ꝋ.𐌔𐌓.ᏵꝊᕓ.𐌁𐌐
+
+![](https://media1.tenor.com/m/MmahhnpUmtkAAAAd/carlinhos-dalva.gif)
